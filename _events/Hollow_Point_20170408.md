@@ -8,4 +8,4 @@ We will be listening to music from Aeris, Atlas Grey, Moribund, Satisfye and, Me
 
 Join us at [https://plug.dj/tastycat](https://plug.dj/tastycat)
 
-This Saturday, the 8th of April at: 7pm GMT | 12pm PDT | 3pm EST
+This Saturday, the 8th of April at: 7pm GMT ~ 12pm PDT ~ 3pm EDT
